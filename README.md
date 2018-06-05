@@ -7,7 +7,7 @@ https://www.facebook.com/rifat.jipu
 
 Ariful Islam Opu  
 (Available on Eid)  
-(https://www.facebook.com/profile.php?id=100013231292919&fref=gc&dti=744858605683867)
+[fb](https://www.facebook.com/profile.php?id=100013231292919&fref=gc&dti=744858605683867)
 
 
 
