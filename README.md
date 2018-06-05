@@ -5,9 +5,9 @@ Rifat Jipu (Maruf Hasan)
 https://www.facebook.com/rifat.jipu  
 
 
-Ariful Islam Opu
-(Available on Eid)
-[(Available 03-06-18)]
+Ariful Islam Opu  
+(Available on Eid)  
+(https://www.facebook.com/profile.php?id=100013231292919&fref=gc&dti=744858605683867)
 
 
 
