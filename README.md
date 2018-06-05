@@ -8,6 +8,9 @@ Ariful Islam Opu
 (Available on Eid)  
 [fb.com](https://www.facebook.com/profile.php?id=100013231292919&fref=gc&dti=744858605683867)
 
+HR Søhán  
+01954443872  (Available on 03-06-18)    
+[fb.com](https://www.facebook.com/hr.sohan.9?fref=gc&dti=744858605683867)
 
 
 ## O+
