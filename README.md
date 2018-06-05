@@ -7,7 +7,6 @@ Masum Billah
 01912933703 (Available on 05-06-18)  - There was a problem before giving blood  
 [fb.com](https://www.facebook.com/profile.php?id=100005283378690)
 
-
 Ariful Islam Opu  
 (Available on Eid)  
 [fb.com](https://www.facebook.com/profile.php?id=100013231292919&fref=gc&dti=744858605683867)
