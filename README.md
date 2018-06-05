@@ -2,7 +2,7 @@
 ============================  
 Rifat Jipu (Maruf Hasan)   
 01947838806 (Available 03-06-18)  
-[fb.com)[https://www.facebook.com/rifat.jipu  ]
+[fb.com](https://www.facebook.com/rifat.jipu)
 
 
 Ariful Islam Opu  
