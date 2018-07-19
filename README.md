@@ -36,7 +36,17 @@ Md Saidur Rahman (LEDP Web)
 [fb.com](https://www.facebook.com/riponict)
 
 
+Zahid Hassan Tushr (LEDP DM)
+01920512609  
+[fb.com](https://www.facebook.com/zahid.hassan512)
 
+Jihad Khan (FIP Trianee)
+01621909784  
+[fb.com](https://www.facebook.com/profile.php?id=100025197760401)
+
+Mohammad Abu Sayed
+01775276809  
+[fb.com](https://www.facebook.com/rumisayed.forever)
 
 
 
